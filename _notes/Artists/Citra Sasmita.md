@@ -1,0 +1,9 @@
+*Peculiar Garden, 2022*
+
+**KADIST Interview on [[Balinese history]] and [[Balinese folklore]]:**
+
+>*Bali has a long history of how art became a political tool during the Dutch colonial era through the perspective of European artists who came and provided exotic and beautiful perspectives on how to depict the beauty of nature and the female body. Society has accepted how art depicts women’s bodies and figures as inseparable from the aesthetic references and standards that are artists’ conventions. The body as an object of beauty and elegance is frozen in the medium of art. This made me consciously want to fight against the Western aesthetic paradigm that we have accepted and glorified in the historical canon of Balinese art by bringing back the essence of original Balinese art which is much more complex in depicting life and its cosmology.*
+>
+>*Growing up in a Balinese cultural and ritualistic environment, I carry the legacy of bloody colonial and political historical narratives which made me treat the figures in my paintings as autonomous subjects to record the inheritance I received as a colonized nation. The history of our independence was built through bloodshed, which we celebrate today through repeated religious rituals as a form of respect for our ancestors. A woman’s body is a record of the experiences and realities of life that women experience and how they live their lives both in nature and social construction.*
+>
+>*I describe a codification of the maternal realm, primordial signs before humans understood language and symbols. Women have an essential connection with feminine nature, which we integrate in our philosophy and ritual forms. In Balinese culture, we tend to personify nature as a supernatural figure that deserves respect and provides reciprocity to humanity for its survival. We believe that violating and damaging the balance of nature, such as human progress in objectifying nature, will create havoc and disaster.*
