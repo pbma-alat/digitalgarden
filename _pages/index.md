@@ -5,9 +5,7 @@ id: home
 permalink: /
 ---
 
-# Welcome! 🌱
-
-This is a digital garden which I hope to nurture into a terrain.
+This is a digital garden which I hope to nurture into a terrain. 𖡼𖤣𖥧𖡼𓋼𖤣𖥧𓋼𓍊
 
 # current project
 
