@@ -6,5 +6,5 @@ dg-publish: true
 [[the fiber]]
 [[the food]]
 [[the marias and the aswang]]
-[[the blacksmiths]]
-[[the volcano]]
+the blacksmiths
+the volcano
