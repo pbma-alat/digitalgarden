@@ -4,6 +4,7 @@ title: About
 permalink: /about
 ---
 
-*This is an about page.*
-
-Feel free to tell the world about what you love! 😍
+Bianca is a cultural worker from
+the Philippines. 🇵🇭 She grew up in a
+port city where people live
+by rainstorms 🌨️ and volcanic fire. 🌋
